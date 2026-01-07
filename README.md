@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @balspeace4
+- 👋 Hi, I’m @bals TSOP ⚡️🦺
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning informatic
 - 💞️ I’m looking to collaborate on Google 
